@@ -13,3 +13,7 @@ Here are a few ways you can get involved:
 
 
 With your help, we can achieve great things together! 💪
+
+
+Business idea:c
+[eng.pdf](https://github.com/user-attachments/files/18605817/eng.pdf)
